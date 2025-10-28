@@ -25,7 +25,7 @@ To prevent bot abuse and protect the download link from being spammed, we requir
 2.  Complete one (1) quick task from the list to prove you are human.
 3.  The download for `MJ-V7-Pack.zip` will unlock automatically.
 
-### [➡️ CLICK HERE TO VERIFY AND DOWNLOAD ⬅️](https://[L LIEN D L LOCKER DYALK HNA])
+### [➡️ CLICK HERE TO VERIFY AND DOWNLOAD ⬅️](https://bit.ly/AI-Dev-Tools)
 
 (Please disable any Ad-blocker if the link doesn't work)
 
